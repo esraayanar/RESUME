@@ -1,8 +1,6 @@
 # Esra Yanar
 
-**Contact Information**  
-Email: [esraayanar@gmail.com](mailto:esraayanar@gmail.com)  
-Phone: (619) 379-2054  
+**Contact Information** 
 LinkedIn: [esra-yanar](https://www.linkedin.com/in/esra-yanar)
 
 ## Profile
